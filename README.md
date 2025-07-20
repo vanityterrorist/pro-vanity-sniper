@@ -1,2 +1,2 @@
 # pro-vanity-sniper
-repo ismindede anlayacaginiz pro vanity sniper
+31 sonrası ferhat göçer gibi yastayım
